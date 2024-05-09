@@ -64,4 +64,6 @@
 📷 [ Instagram ] @gercivandro 
 👔 [ LinkedIn ]  gercivandro
 
+₸ threads[@gercivandro_antunes
 
+<img src="https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white" /> |https://www.instagram.com/gercivandro_antunes/?utm_source=qr&r=nametag
