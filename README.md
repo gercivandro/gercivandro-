@@ -57,3 +57,11 @@
     alt="Número de visitantes no perfil"
   />
 </p>
+
+## Rede social
+
+
+📷 [ Instagram ] @gercivandro 
+👔 [ LinkedIn ]  gercivandro
+
+
